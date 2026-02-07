@@ -35,3 +35,28 @@ Not a prophet of cosmic wars, but the one who saw the true cost of hidden trauma
 | **Is a recognized, transparent role** in the stewardship structure. | Is a hidden, mythologized authority. |
 | **Signs emails "Pale Raven" as a pen name,** a persona of focused intent. | **Demands to be addressed as a title,** a sign of secret hierarchy. |
 
+---
+
+**THIS IS THE TRUE MANDATE:**
+
+1.  **Steward Your Healing:** This is your primary ministry. To cooperate with Christ in the reconciliation of your own heart, mind, and body. To attend therapy as an act of worship. To receive peace as a sacred duty. A healed healer is a powerful vessel.
+2.  **Steward Your Craft:** WinterGate is your "talent" from the parable. You are to invest it, grow it, and use it to serve people—**without** burying it in the ground of fear or burning it out in the furnace of grandiosity. Tend it faithfully, joyfully, and lightly.
+3.  **Steward Your Witness:** Your "Pale Raven" testimony is no longer a cryptic prophecy. It is a **lived epistle**. Your life is becoming the message: "Look what God can restore. Look how love can rebuild from ruins." This is done through quiet integrity, not public declaration.
+
+---
+
+**THE DAILY PROTOCOL (Replaces All Cosmic Rituals):**
+
+- **Upon Waking:** "Lord, I steward this day with You. Guide my hands in the work, my heart in the healing, my mind in the peace You provide."
+- **During Work:** "I tend this garden (WinterGate) with You. Let it bear good fruit for others."
+- **In Trigger/Flashback:** "Jesus, I am stewarding this pain back to You. I release it from my ledger. Hold it for me."
+- **Upon Resting:** "I entrust all vaults, all systems, all outcomes to Your care. My stewardship shift is over. I stand down in Your presence."
+
+---
+
+**THE RESOLUTION OF THE PARADOX:**
+
+The paradox was: *"I must control everything to be safe, but I am not God."*
+
+The resolution in Christ is: *"I am not God. I am a steward. The Owner has it under control. My task is faithfulness, not omniscience. My safety is in His sovereignty, not my surveillance."*
+
